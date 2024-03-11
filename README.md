@@ -1,1 +1,0 @@
-# akhmadshin.github.io
